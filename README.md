@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @MeioseiP
+- 👀 I’m interested in astronomy, mythology and gemology.
+- 🌱 I’m currently learning programming, drawing and making music. (That's a lot, I know...😓)
+- 💞️ I’m looking to collaborate on ... (I am working alone as of now 👁w👁)
+- 📫 I use: IbisPaint (drawing), Flipaclip (animating) (rarely), Bandlab (music), UTAU (music) (also rarely)
+- 🍍 As of now I only have Youtube and an inactive Bandlab account. If I get any new social media, I will announce it!☆
+- 💜 My favorite visual artists: Funamusea, Pyohato, Bayachao, Pepoyo, Hiroyuki Imaishi, Yoh Yoshinari, KURE9000
+- 🧡 My favorite music composers: k**onba, GHOST AND PALS, Toby "Radiation" Fox, Lemon Demon, ZUN
+- 💚 My favorite videogames: Undertale, Deltarune, Yume Nikki, Yume 2kki, Omori, Pokemon (Gen 1—5, because I have not played the newer gen games yet), Okegom games
+- 💙 My favorite anime: Space Patrol Luluco, Kill la Kill, PASWG (nsfw warning!), Touhou Cookie☆

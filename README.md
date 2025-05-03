@@ -6,5 +6,5 @@
 - 🍍 As of now I only have Youtube and an inactive Bandlab account. If I get any new social media, I will announce it!☆
 - 💜 My favorite visual artists: Funamusea, Pyohato, Bayachao, Pepoyo, Hiroyuki Imaishi, Yoh Yoshinari, KURE9000
 - 🧡 My favorite music composers: k**onba, GHOST AND PALS, Toby "Radiation" Fox, Lemon Demon, ZUN
-- 💚 My favorite videogames: Undertale, Deltarune, Yume Nikki, Yume 2kki, Pokemon Gen 5, Okegom games, Puyo Puyo series, Ace Attorney (Trilogy)
+- 💚 My favorite videogames: Undertale, Deltarune, Yume Nikki, Yume 2kki, Pokemon Gen 5, Okegom games, Puyo Puyo series, Ace Attorney Trilogy
 - 💙 My favorite anime: Space Patrol Luluco, Kill la Kill, PASWG (nsfw warning!), Touhou Cookie☆
